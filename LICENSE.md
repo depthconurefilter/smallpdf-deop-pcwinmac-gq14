@@ -1,4 +1,4 @@
-# 
+# Exclusive Smallpdf Desktop add-ons for Mac OS | Native Smallpdf Desktop add-ons for PC Windows. Featuring offline access and pdf editing — optimized for maximum performance on every platform.
 
 
 
